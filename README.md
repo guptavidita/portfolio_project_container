@@ -27,6 +27,12 @@ plaintext
 
   📷 Preview
   ![image](https://github.com/user-attachments/assets/4436707d-17b5-4c60-9363-25868fc81d77)
+  ![Screenshot 2025-04-27 231713](https://github.com/user-attachments/assets/8d5a2d39-63ed-4d6c-be7e-466afb90ac59)
+  ![image](https://github.com/user-attachments/assets/95fa8a14-147a-480c-90a4-ab80e7e6ba46)
+  ![image](https://github.com/user-attachments/assets/8fe26015-f729-47c3-b7a1-58ea79bcef89)
+
+
+
   
   
 
